@@ -23,16 +23,10 @@ uji coba aja dulu kalo ada kesalahan mohon koreksi nya
 
 Salam buat para Konsultan IT Indonesia
 
+Regard : Yukinoshita 47
+
 ==========================
-         (        )  
- (       )\ )  ( /(  
- )\ )   (()/(  )\()) 
-(()/(    /(_))((_)\  
- /(_))_ (_))   _((_) 
-(_)) __|/ __| | || | 
-  | (_ |\__ \ | __ | 
-   \___||___/ |_||_|
-   
+  
   Garuda Security Hacker 
   No Army Can Stop Idea
   
